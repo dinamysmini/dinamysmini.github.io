@@ -1,0 +1,1 @@
+# dinamysmini.github.io
